@@ -1,3 +1,3 @@
 # Jacob Curran-Sebastian
 
-Welcome to my page!
+Welcome to my page! More coming soon...
